@@ -17,9 +17,9 @@ Wanting it all
 And the whole world will crumble and fall, woah"*
 
 ## **BYI**
-> Try not to cover
-> W2I usually unless stated otherwise
-> Don't associate me with who I sit with. I'm usually alone most of the time. If I'm with someone, I'm not feeling well.
-> I'm usually NV. I'm sorry. I don't do well with socializing. Yes, I know this is a Social game. I just like making ponies.
-> English is poor.
+* **Try not to cover**
+* *W2I usually unless stated otherwise*
+* **Don't associate me with who I sit with.** *I'm usually alone most of the time. If I'm with someone, I'm not feeling well.*
+* **I'm usually NV.** I'm sorry. I don't do well with socializing. Yes, I know this is a Social game. I just like making ponies.
+* **English is poor**
  *Github layout made by Mikalji*
