@@ -1,7 +1,7 @@
 ## ✩ "Morningstar, the Illumination of Wisdom."
 
 <p align="center" width="100%">
-    <img src="https://komarev.com/ghpvc/?username=Aivaniel&style=for-the-badge&label=❀.ೃ࿔&color=687CD2"> 
+    <img src="https://komarev.com/ghpvc/?username=Aivaniel&style=for-the-badge&label=˚♡˚₊‧⁺˖&color=687CD2"> 
 </p>
  
 <p align="center">
@@ -9,3 +9,4 @@
 </p>
 
 > *"Period, the reversal of Finality."*
+> *Github layout made by Mikalji*
